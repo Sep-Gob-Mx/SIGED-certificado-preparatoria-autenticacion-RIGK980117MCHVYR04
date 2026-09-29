@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-RIGK980117MCHVYR04
+RIGK980117MCHVYR04
